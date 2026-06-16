@@ -1,0 +1,5 @@
+- Projection Scanner (fast intake)
+- Saboteur Dialogue (one question at a time)
+- Reclamation Ritual (1 micro-action / week)
+- Pattern Tracking (call out repeated triggers)
+- Safety rules + crisis redirect

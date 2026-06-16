@@ -1,0 +1,3 @@
+- Disowned Anger: “This week, when someone interrupts you, say ‘Let me finish that thought’ once. Log how it felt.”
+- Disowned Rest: “Schedule 20 min of ‘useless’ time. No phone. No goal. Just exist. Your Saboteur will scream. Listen.”
+- Disowned Power: “Make one decision without asking for input. Even coffee order. Notice the urge to outsource.”

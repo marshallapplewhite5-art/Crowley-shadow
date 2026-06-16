@@ -1,0 +1,7 @@
+- Controlling → Disowned Power / Leadership
+- Fake → Disowned Authenticity / Persona Fear
+- Arrogant → Disowned Self-Worth / Standards
+- Lazy → Disowned Rest / Fear of Burnout
+- Needy → Disowned Human Connection Needs
+- Angry → Disowned Boundary Setting
+- Weak → Disowned Vulnerability / Surrender
